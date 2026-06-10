@@ -1,4 +1,4 @@
-# 
+# Avançado 1inch trading bot predefinições para Mac OS | Seguro 1inch trading bot predefinições para PC Windows. Com acompanhamento de perda impermanente e feeds em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
